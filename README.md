@@ -8,3 +8,6 @@ A Minecraft mod.This mod is making,please wait.
 
 不知道这篇短文有没有人看
 wwwwwwwwwwwwwwwwwwwwwww
+
+#相关内容构思中
+机器可能会与大部分科技模组的不同
